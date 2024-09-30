@@ -25,7 +25,7 @@ Currently, I'm actively training to improve my skills and knowledge in these are
 
 ## 📫 How to Reach Me
 - 📄 LinkedIn: FreddyRamirez (www.linkedin.com/in/freddy-ramirez-3668ab264)
-- Email: thealexytpro@gmail.com
+- Email: freddyramirez0428@gmail.com
 
 ## ⚡ Fun Fact
 - I enjoy learning new languages, both programming and spoken languages. Currently working on improving my French!
